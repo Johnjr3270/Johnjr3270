@@ -1,5 +1,5 @@
 - 👋 Hi, I’m John Jr
-- 👀 I’m interested in chemistry
+- 👀 I’m interested in chemistry and business
 - 🌱 I’m currently learning finance and chemistry
 - 💞️ I’m looking to collaborate on chemistry guides and income ideas
 - 📫 How to reach me johnjr3270@gmail.com
